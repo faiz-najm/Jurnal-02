@@ -1,1 +1,1 @@
-# Jurnal-02
+6706213155_Faiz Najmuddin
